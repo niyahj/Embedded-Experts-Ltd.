@@ -1,0 +1,1 @@
+Embedded Experts Ltd. specializes in providing embedded system solutions for IoT devices, automation, and industrial applications. With over a decade of experience, we innovate to create products optimized for performance and energy efficiency. Partner with us to elevate your technology to the next level.
